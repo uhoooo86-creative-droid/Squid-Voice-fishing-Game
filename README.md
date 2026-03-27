@@ -1,1 +1,1 @@
-Squid Game. New
+Squid Voice fishing Game
